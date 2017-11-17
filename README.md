@@ -1,1 +1,0 @@
-# isJoseAvailableThisAfternoon.github.io
